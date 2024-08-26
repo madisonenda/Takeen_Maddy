@@ -7,6 +7,8 @@ I really need coffee
 me too
 -Maddy
 
-Maddy hates Takeen!
-- Maddy
+
+Surely Maddy loves wolf eels!
+- Takeen
+
 
